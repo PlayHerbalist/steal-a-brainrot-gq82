@@ -1,4 +1,4 @@
-
+steal a brainrot Script best offers the most advanced steal a brainrot Script, with auto-sell and invisibility. Perfect for dominating any match.
 
 
 
